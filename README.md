@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @FortinetFerra
+- 👀 I’m interested in ferrets and firewalls!
+- 🌱 I’m currently learning how to use GitHub
+- 📫 How to reach me at my isntgram @ferrasferrets or twitter @ferrets4ferra
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: Australia declared a war against emus and New Zealand doesn't have snakes!
